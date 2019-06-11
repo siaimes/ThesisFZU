@@ -1,0 +1,5 @@
+***此处所有文件下载自[福州大学研究生院](http://yjsy.fzu.edu.cn)2019年3月29日[关于做好2018-2019学年第3批学位申请和授予工作的通知](http://yjsy.fzu.edu.cn/html/tzgg/2019/03/29/9c569ad8-d29b-4ecf-9d4a-e54ea7ba5a3e.html)，请自行前往[研究生院通知公告专区](http://yjsy.fzu.edu.cn/html/tzgg/1.html)查看是否有关于学位申请的最新通知（格式为：关于做好xxxx学年第n批学位申请和授予工作的通知）并下载其附件!***
+
+***此处所有文件下载自[福州大学研究生院](http://yjsy.fzu.edu.cn)2019年3月29日[关于做好2018-2019学年第3批学位申请和授予工作的通知](http://yjsy.fzu.edu.cn/html/tzgg/2019/03/29/9c569ad8-d29b-4ecf-9d4a-e54ea7ba5a3e.html)，请自行前往[研究生院通知公告专区](http://yjsy.fzu.edu.cn/html/tzgg/1.html)查看是否有关于学位申请的最新通知（格式为：关于做好xxxx学年第n批学位申请和授予工作的通知）并下载其附件!***
+
+***此处所有文件下载自[福州大学研究生院](http://yjsy.fzu.edu.cn)2019年3月29日[关于做好2018-2019学年第3批学位申请和授予工作的通知](http://yjsy.fzu.edu.cn/html/tzgg/2019/03/29/9c569ad8-d29b-4ecf-9d4a-e54ea7ba5a3e.html)，请自行前往[研究生院通知公告专区](http://yjsy.fzu.edu.cn/html/tzgg/1.html)查看是否有关于学位申请的最新通知（格式为：关于做好xxxx学年第n批学位申请和授予工作的通知）并下载其附件!***
